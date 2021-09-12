@@ -5,8 +5,7 @@
 - 👀 I’m interested in Sports Analytics(especially basketball)
 - 🌱 I’m currently learning Japanese and Data Analytics
 - 💞️ I’m looking to collaborate on Econometrics projects or basketball analytics projects
-- 📫 How to reach me: waltermymala881@gmail.com
--
+- 📫 How to reach me: waltermymala881@gmail.com or http://www.linkedin.com/in/waltermymala
 
 <!---
 YeezyWally/YeezyWally is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
