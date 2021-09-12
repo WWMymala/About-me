@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YeezyWally
+- 👋 Hi, I’m Walter Mymala(WWMymala)! 
 - Current UC Davis student(graduating Spring 2022)
 - Managerial Economics Major and Statistics Minor
 - Member of the Moneyball Club at UC Davis
